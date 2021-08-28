@@ -1,2 +1,0 @@
-Denis Ferreira
-Coleciona sono
